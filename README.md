@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @itsrouan
+- 👀 I’m interested in IU/UX
+- 🌱 I’m currently learning game design 
